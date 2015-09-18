@@ -6,7 +6,7 @@ Ezek a videók oktatófilmek, különféle érdekes feladatok bemutatására, ez
 Javaslat, a képernyő közepére áramló, képletek, melyek forognak, áramlanak és egy hatalmas izzó gömböt alkotnak. És erre az izzó gömbre kerül rá a SIMM felirat. Színvilága pedig kékes fehér, sötét háterrel.
 Zene: fergeteges, pörgős, lendületes instrumentális.
 De mindne jó ötlet elfogadok.
-pl: https://www.youtube.com/watch?v=UuaxILKYFII https://www.youtube.com/watch?v=Rt_n3AGuLgw
+pl: https://www.youtube.com/watch?v=UuaxILKYFII https://www.youtube.com/watch?v=Rt_n3AGuLgw https://youtu.be/dcQr5M2NAdg
 
 A leadási határidő 2015. szeptember 10.
 
